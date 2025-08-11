@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Tayyab Sajjad
-- 📫 How to reach me -> https://www.linkedin.com/in/tayyab-sajjad-39268422a/?trk=opento_sprofile_goalscard
+- 📫 How to reach me ->https://www.linkedin.com/in/tayyab-sajjad/
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
